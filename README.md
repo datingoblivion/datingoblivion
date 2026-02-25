@@ -3,4 +3,5 @@
 <p align="left">hello i am kelsey ^o^ they/them, seventeen, <a href="https://lgbtqia.wiki/wiki/Gendervoid" target="blank">nonbinary</a> ace-lesbian ⚢</p>
 <p align="left">i love roblox & minecraft (mcyt + mcsm) & ena: dream bbq. i especially love kenadian & jophiel! c+h + whispers are also okay and encouraged especially if we have the same interests since im offtab ninety percent of the time. you can find me sitting around the roblox / mc area. btw for any fun personality stuff about me, i am quite literally c!kenadian, loveshot and mizi in the flesh. :o3</p>
 <p align="left">please don't interact with me if your main interest is forsaken, you call robots in general “clankers”, treat female characters especially poor and weird, hate my main interests, fit the general dni criteria, or you're under thirteen. otherwise, do whatever but don't be a weirdo.</p>
+ㅤ
 <p align="left">ㅤㅤ<img src="https://komarev.com/ghpvc/?username=partyx2&label=acidmall%20fans&color=e084b6&style=flat" alt="partyx2"/></p>
