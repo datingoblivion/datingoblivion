@@ -1,4 +1,5 @@
 <img align="left" alt="image" src="https://peristille.carrd.co/assets/images/image03.png?v=ef1bf1ac" />
+ㅤ
 <p align="left"> <img src="https://peristille.carrd.co/assets/images/gallery13/cabe74ff.gif?v=ef1bf1ac" alt="image"/> <a href="https://txto.eu.org/trainescape" target="blank">socials</a> <a href="https://partyperson.atabook.org/" target="blank">atabook</a> <a href="https://www.youtube.com/watch?v=0AWS2shtUTs" target="blank">listen to peak</a></p>
 <p align="left">hello i am kelsey ^o^ they/them, seventeen, <a href="https://lgbtqia.wiki/wiki/Gendervoid" target="blank">nonbinary</a> ace-lesbian ⚢</p>
 <p align="left">i love roblox & minecraft (mcyt + mcsm) & ena: dream bbq. i especially love kenadian & jophiel! c+h + whispers are also okay and encouraged especially if we have the same interests since im offtab ninety percent of the time. you can find me sitting around the roblox / mc area. btw for any fun personality stuff about me, i am quite literally c!kenadian, loveshot and mizi in the flesh. :o3</p>
